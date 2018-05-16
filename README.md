@@ -1,1 +1,13 @@
-# s20
+http://www.lytt8.com
+http://www.lzzwl.com
+http://www.m1038.com
+http://www.m1126.com
+http://www.m2512.com
+http://www.m9026.com
+http://www.maglo.net
+http://www.mala2.com
+http://www.manr2.com
+http://www.map44.net
+http://www.mare2.net
+http://www.matoa.net
+http://www.maulo.net
